@@ -3,7 +3,7 @@
 
 
 2 lazy 2 decorate this,also cool ppl check my straw and sign my ata :3
-<!--
+check respos 4 more info.
 **kynazz/Kynazz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
