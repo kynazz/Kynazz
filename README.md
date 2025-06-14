@@ -4,4 +4,4 @@
 
 2 lazy 2 decorate this,also cool ppl check my straw and sign my ata :3
 
-check respos 4 more info.
+check https://github.com/kynazz/uh 4 more info.
