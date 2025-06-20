@@ -1,8 +1,9 @@
-## Wsg. 
+
 
 (scroll down)
 
-![image](https://github.com/user-attachments/assets/7e481c52-036f-41e1-8ab1-a620c76f6157)
+![image](https://github.com/user-attachments/assets/8a401285-f48c-4dc1-8220-29d576b7a7f4)
+
 
 
 2 lazy 2 decorate this,also cool ppl check my straw and sign my ata :3
