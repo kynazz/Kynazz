@@ -1,10 +1,12 @@
+  :33<
+  
+  (scroll down)/uhh ty for the follows ig ^^ appr3ciat3 it !
 
-  (scroll down)/uhh ty for the follows ig ^^ appreciate it !
-
-  ![image](https://github.com/user-attachments/assets/6ee834a6-de8a-4b2e-932e-623f54b273c2)
+ ![image](https://github.com/user-attachments/assets/a7a8446d-bc50-4c26-a1a7-d01402bbf623)
 
 
 
-2 lazy 2 decorate this,also cool ppl check my straw and sign my ata :3
 
-check https://github.com/kynazz/uh 4 more info.
+2 lazy 2 d3corat3 this,also cool ppl ch3ck my straw and sign my ata :3
+
+ch3ck https://github.com/kynazz/uh 4 mor3 info.
