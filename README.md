@@ -1,8 +1,7 @@
 
+  (scroll down)/uhh ty for the follows ig ^^ appreciate it !
 
-(scroll down)/uhh ty for the follows ig ^^ appreciate it !
-
-![image](https://github.com/user-attachments/assets/8a401285-f48c-4dc1-8220-29d576b7a7f4)
+  ![image](https://github.com/user-attachments/assets/6ee834a6-de8a-4b2e-932e-623f54b273c2)
 
 
 
