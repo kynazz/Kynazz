@@ -1,6 +1,6 @@
 
 
-(scroll down)
+(scroll down)/uhh ty for the follows ig ^^ appreciate it !
 
 ![image](https://github.com/user-attachments/assets/8a401285-f48c-4dc1-8220-29d576b7a7f4)
 
