@@ -12,4 +12,4 @@
 >
 > ch3ck https://github.com/kynazz/uh 4 mor3 info.
 >
->![https://github.com/kynazz/kynazz](https://komarev.com/ghpvc/?username=kynazz)
+> epics/cool critters >![https://github.com/kynazz/kynazz](https://komarev.com/ghpvc/?username=kynazz)
