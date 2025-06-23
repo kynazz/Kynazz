@@ -1,4 +1,4 @@
-> :33< 
+ :33< 
 >
 >  (scroll down)
 >
@@ -11,5 +11,5 @@
 > 2 lazy 2 d3corat3 this,also cool ppl ch3ck my straw and sign my ata :3
 >
 > ch3ck https://github.com/kynazz/uh 4 mor3 info.
-
-![https://github.com/kynazz/kynazz](https://komarev.com/ghpvc/?username=kynazz)
+>
+>![https://github.com/kynazz/kynazz](https://komarev.com/ghpvc/?username=kynazz)
