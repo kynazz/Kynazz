@@ -1,7 +1,5 @@
 :33< 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square)
-  
   (scroll down)
 
  ![image](https://github.com/user-attachments/assets/a7a8446d-bc50-4c26-a1a7-d01402bbf623)
