@@ -10,7 +10,9 @@
 >
 > 2 lazy 2 d3corat3 this,also cool ppl ch3ck my straw and sign my ata :3
 >
-> ch3ck https://github.com/kynazz/uh 4 mor3 info.
+>I'll draw/sign your ata,straw if you follow ! ^^ (might b l8 sorgy)
+>
+>ch3ck https://github.com/kynazz/uh 4 mor3 info.
 >
 > epics/cool critters 
 >
