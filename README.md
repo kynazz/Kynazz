@@ -14,4 +14,4 @@
 >
 > [Click me !](https://github.com/kynazz/uh) 4 mor3 info
 >
->↳ ![Visitors](https://img.shields.io/badge/3pics/coolcritters-276-blue)
+>↳ ![Hits](https://komarev.com/ghpvc/?username=YourUsername&label=3pics/C00liess&color=blue&style=flat)
