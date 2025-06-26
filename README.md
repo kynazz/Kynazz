@@ -12,9 +12,6 @@
 >
 >I'll draw/sign your ata,straw if you follow ! ^^ (might b l8 sorgy)
 >
->ch3ck https://github.com/kynazz/uh 4 mor3 info.
+> [Click me !](https://github.com/kynazz/uh) 4 mor3 info
 >
-> epics/cool critters 
->
->
->↳ ![https://github.com/kynazz/kynazz](https://komarev.com/ghpvc/?username=kynazz)
+>↳ ![Visitors](https://img.shields.io/badge/3pics/coolcritters-276-blue)
