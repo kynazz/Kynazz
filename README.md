@@ -14,4 +14,4 @@
 >
 > [Click me !](https://github.com/kynazz/uh) 4 mor3 info
 >
-> ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=Snores&color=blue&style=flat)
+> ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=M3ows&color=blue&style=flat)
