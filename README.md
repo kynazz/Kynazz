@@ -10,7 +10,7 @@
 >
 > 2 lazy 2 d3corat3 this,also cool ppl ch3ck my straw and sign my ata :3
 >
->I'll draw/sign your ata,straw if you follow ! ^^ (might b l8 sorgy)
+>I might draw/sign your ata,straw if you follow ! ^^ (will b l8 sorgy)
 >
 > [Click me !](https://github.com/kynazz/uh) 4 mor3 info
 >
