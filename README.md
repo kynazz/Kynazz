@@ -9,7 +9,7 @@
 >
 > hello...check out my swag,cool ass links....heh
 >
->I'll draw on your straw/sign ata if you do :smirk:
+>I'll draw on your straw/sign ata if you do(idk brud) :smirk:
 >
 > [Click me !](https://github.com/kynazz/uh) 
 >
