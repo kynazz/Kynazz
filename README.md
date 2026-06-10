@@ -7,10 +7,10 @@
 >
 >
 >
-> 2 lazy 2 d3corat3 this,also cool ppl ch3ck my straw and sign my ata :3
+> hello...check out my swag,cool ass links....heh
 >
->I might draw/sign your ata,straw if you follow ! ^^ (will b l8 sorgy)
+>I'll draw on your straw/sign ata if you do :smirk:
 >
-> [Click me !](https://github.com/kynazz/uh) 4 mor3 info
+> [Click me !](https://github.com/kynazz/uh) 
 >
-> ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=M3ows&color=blue&style=flat)
+> ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=People_that_belongs_in_my_stew&color=blue&style=flat)
